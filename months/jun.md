@@ -8,3 +8,4 @@ June practice 18
 June practice 20
 June practice 25
 June practice 27
+June practice 02
